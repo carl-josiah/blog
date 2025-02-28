@@ -1,1 +1,1 @@
-random unorganized thoughts
+poorly written thoughts
